@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+My favorite serials:
+- 1️⃣ Ted Lasso
+- 2️⃣ Emily in Paris
